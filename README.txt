@@ -1,0 +1,1 @@
+Please refer to the "Net Ninny Manual" (PDF) for further instructions.
